@@ -1,0 +1,1 @@
+Committed minded vision exercises
